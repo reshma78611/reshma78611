@@ -8,5 +8,5 @@
 - 💬 Ask me about ...anything regarding ML and NLP
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...Joke
-- ⚡ Fun fact: ...Ice creams
+- ⚡ Fun fact: ...Ice creams and Chocolates
 -->
