@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on ...Projects regarding ML and NLP
 - 🤔 I’m looking for help with ...Artificial Intelligence
 - 💬 Ask me about ...anything regarding ML and NLP
-- 📫 How to reach me: ...
+- 📫 How to reach me: ...reshmasultana11786@gmail.com
 - 😄 Pronouns: ...Joke
 - ⚡ Fun fact: ...Ice creams and Chocolates
 -->
